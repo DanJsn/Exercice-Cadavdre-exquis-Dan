@@ -8,6 +8,7 @@ Réveil mon odorat pété,
 
 
 
+
 # Ah cousine stop flame c ki le fou ici 
 
 **LELELELELELELELELELLELLELLELELELELELELELELELLELLELLELELELELELELELELELLELLELLELELELELELELELELELLELLELLELELELELELELELELELLELLELLELELELELELELELELELLELLELLELELELELELELELELELLELLELLELELELELELELELELELLELLEL
@@ -15,4 +16,11 @@ Réveil mon odorat pété,
 
 
 J'ai rien compris mais, l'odeur de mon pie est comme un fromage
+
+
+J'ai rien compris mais, l'odeur de mon pie est comme un fromage<br />
+
+Peut-être que si je retirais le fromage coincé dans mon oreille
+J'entendrais un peu mieux l'appel du Coq:
+"Fais tourneeeeeeeeeeeer!" 
 
