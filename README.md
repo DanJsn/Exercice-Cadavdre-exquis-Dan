@@ -6,4 +6,8 @@ Oh que ton odeur fromage frelaté,
 Réveil mon odorat pété,
 'coute moi bien ! Rends nous service et fais tourner lfromage , paumé.
 
-J'ai rien compris mais, l'odeur de mon pie est comme un fromage
+J'ai rien compris mais, l'odeur de mon pie est comme un fromage<br />
+
+Peut-être que si je retirais le fromage coincé dans mon oreille
+J'entendrais un peu mieux l'appel du Coq:
+"Fais tourneeeeeeeeeeeer!" 
