@@ -5,3 +5,5 @@ Lui tint à peu près ce langage :
 Oh que ton odeur fromage frelaté,
 Réveil mon odorat pété,
 'coute moi bien ! Rends nous service et fais tourner lfromage , paumé.
+
+J'ai rien compris mais, l'odeur de mon pie est comme un fromage
